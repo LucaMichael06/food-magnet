@@ -1,1 +1,1 @@
-Frauen sind Objekte
+Du bist cool
